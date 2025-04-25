@@ -1,4 +1,4 @@
-# 💰 Business & Money Roadmap – README by Afsar Ahamed
+# 💰 Business Roadmap – README by Afsar Ahamed
 
 ### 🎯 Goal
 Develop the skills, mindset, and systems to explore, validate, and scale practical business ideas in **India**, **Australia**, and beyond — whether it’s a solo service, tech product, or creative venture. This roadmap avoids bland theory and focuses on **real-world, lean, and ethical money-making paths**.
